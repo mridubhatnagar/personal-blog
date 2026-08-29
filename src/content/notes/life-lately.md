@@ -31,8 +31,7 @@ Of course, no denying the fact that life feels beautiful with a partner. And, ma
 Hyper independence doesn't happen all of a sudden on its own. It is series of experiences. 
 
 When a shoe size 6 person is put in shoe size 8. The difference will always be there. 
-Even if you do your best whatever you can. It is impossible to keep people around you happy. 
-And, in trying to fit in the shoe. I have lost myself.
+Even if you do your best whatever you can. In trying to support the family. I have lost myself.
 
 The 15 yr old me also admired people seeing their titles, designations and what not. This has also been a learning
 professional excellence is possible when there is sanity on personal front. Don't admire seeing one side of someone's life. 
