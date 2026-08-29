@@ -31,7 +31,7 @@ Of course, no denying the fact that life feels beautiful with a partner. And, ma
 Hyper independence doesn't happen all of a sudden on its own. It is series of experiences. 
 
 When a shoe size 6 person is put in shoe size 8. The difference will always be there. 
-Even if you do your best whatever you can. In trying to support the family. I have lost myself.
+Even if you do your best whatever you can. In trying to support the family that brought me into this world. Now old enough that everyone wants me to go into another. I have lost myself.
 
 The 15 yr old me also admired people seeing their titles, designations and what not. This has also been a learning
 professional excellence is possible when there is sanity on personal front. Don't admire seeing one side of someone's life. 
@@ -44,4 +44,6 @@ It is written because I didn't know I'd end up here. And, if anyone finds themse
 We avoid talking about loss, and life after loss. I hope you course correct sooner. 
 
 To people who think what are their parents even doing, parents are doing what is invisible to your eye. They are supporting each other and handling their matters. You are protected by an invisible shield. All things will otherwise come on you.
+
+Is this what a woman's life looks like?
 
