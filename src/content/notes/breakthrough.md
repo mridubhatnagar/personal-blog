@@ -30,7 +30,7 @@ Some time back a new pool did open in vicinity. The only catch being depth of th
 
 This is how it looks
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1741622407252/58fc8567-a99a-4621-8449-63be2dc22cd9.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1741622407252/58fc8567-a99a-4621-8449-63be2dc22cd9.jpeg)
 
 ### Resumed Swimming 🏊‍♀️
 

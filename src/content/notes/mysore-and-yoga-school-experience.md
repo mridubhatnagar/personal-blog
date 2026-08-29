@@ -45,15 +45,15 @@ Post this at around 9 PM optional Satsang for relaxation.
 
 Some pictures from Mysore Camera roll, 2024. Loved the city so much. That I went again in March, 2024. 😊
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737563920787/f13c2548-0b33-41ea-8d22-76cd5da033a7.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737563920787/f13c2548-0b33-41ea-8d22-76cd5da033a7.jpeg)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737563945319/19fad539-f31b-4b4a-a85d-93127258d1a1.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737563945319/19fad539-f31b-4b4a-a85d-93127258d1a1.jpeg)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737563974844/678f17ca-7f51-4d3d-86a3-47af411c2780.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737563974844/678f17ca-7f51-4d3d-86a3-47af411c2780.jpeg)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737564292343/b15059fe-55cf-4580-9aae-f82cdcaf2914.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737564292343/b15059fe-55cf-4580-9aae-f82cdcaf2914.jpeg)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737565144149/cd77072a-11bc-491a-9ba1-b6579155a5e1.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737565144149/cd77072a-11bc-491a-9ba1-b6579155a5e1.jpeg)
 
 Seeing feed full of pictures from outside India often makes me feel if there is nothing left. Or is India travel left for only those who cannot afford International.
 

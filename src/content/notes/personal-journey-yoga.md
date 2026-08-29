@@ -45,13 +45,13 @@ In one of the yoga workshops I recently attended. They had beautifully summarize
 
 4\. I am a person who is super stiff. (My teacher would know). Girls usually are into some form of dancing. So, body is a bit flexible. However, yours truly is not. From then to now we have traveled a fair enough distance. Here, is a short glimpse.
 
-![Srishasana, Mukta Hasta Srishasana](https://cdn.hashnode.com/res/hashnode/image/upload/v1716734369346/380fb245-6015-47be-8ae3-40547587bf8d.jpeg align="center")
+![Srishasana, Mukta Hasta Srishasana](https://cdn.hashnode.com/res/hashnode/image/upload/v1716734369346/380fb245-6015-47be-8ae3-40547587bf8d.jpeg)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1716737558269/4467e4ca-b963-498b-8aac-07f532fe8584.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1716737558269/4467e4ca-b963-498b-8aac-07f532fe8584.jpeg)
 
 5\. Started eating healthy and bit of cooking on and off.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1716738062661/e83a1ec6-392a-4cd0-84eb-bc546661d9e2.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1716738062661/e83a1ec6-392a-4cd0-84eb-bc546661d9e2.jpeg)
 
 6\. Learning something new everyday. When you are constantly learning. Life doesn't feel monotonous.
 

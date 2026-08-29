@@ -20,4 +20,4 @@ A unique sense of independence, freedom to make your own choice, space. Ofcourse
 
 Recently, I was having a conversation. How everything in life is a trade off. It’s on you, which side you choose at the cost of what?
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737885364774/7c3abfae-c6fe-4914-a042-a466e2638ab6.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1737885364774/7c3abfae-c6fe-4914-a042-a466e2638ab6.jpeg)

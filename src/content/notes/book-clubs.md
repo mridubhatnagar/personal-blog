@@ -41,6 +41,6 @@ Out of several things that might be happening to whine about. Reading culture ma
 
 PS: Reach out to me if you know of any more book meetups. I would love to update this list. Hope it helps.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1739695538075/c855e801-83c4-44e9-beb2-3d18f7cfaacc.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1739695538075/c855e801-83c4-44e9-beb2-3d18f7cfaacc.jpeg)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1739695561202/51cbd566-d1b1-4e27-9120-a2c4ee0787d9.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1739695561202/51cbd566-d1b1-4e27-9120-a2c4ee0787d9.jpeg)

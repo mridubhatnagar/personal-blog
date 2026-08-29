@@ -11,7 +11,7 @@ had I not gone and practiced in Mysore. Maybe I wouldn’t have felt it. Ustad Z
 
 1\. 🤸‍♀️ Took the leap of faith, enrolled for a month’s course under Yogacharya Bharath Shetty in Mysore. This was also a reward to self for staying consistent with the practice in 2023. Was fortunate to meet several practitioners from different places across the globe. Loved it so much, that ended up enrolling for March as well.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735707350780/2a5e2e1e-2479-47e5-b834-e96d1bb30967.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735707350780/2a5e2e1e-2479-47e5-b834-e96d1bb30967.jpeg)
 
 2\. 🧘‍♀️ In February, attended a workshop in Mysore on Yogic Philosophy and Asana Practice. While the asana practice was way beyond my level and it was intimidating to be inside a room full of yoga teachers. My key takeaway from the workshop was **“Yoga is detachment from your attachment to suffering”**. I have personally experienced it. On the mat, if your mind wanders. You are bound to fall or miss the instruction.
 
@@ -31,13 +31,13 @@ had I not gone and practiced in Mysore. Maybe I wouldn’t have felt it. Ustad Z
 
 10\. 🦌🚴‍♀️🏊‍♀️🚶‍♀️ July, I was in IITM. Seeing the campus felt like living a dream. Met new people, cycled around the campus in lush green surroundings. Swam in the IITM pool, went for a stroll in their huge central library, Saw deer’s from so close. 18 year old Mridu, who failed at clearing JEE Advance forget IITM. Would not have imagined taking a stroll in IITM campus after 12 years down line. Universe surprises you in its own ways.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735710520679/3b359ed9-3bcb-461a-a26c-dbc05b94b1f6.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735710520679/3b359ed9-3bcb-461a-a26c-dbc05b94b1f6.jpeg)
 
 11\. 💃 August to October went in preparing content for the course, recording, takes and re-takes. Remotely recording from inside a Indian household is challenge. When there are tons of surrounding noises. From honking, to dog barks, processions and the list goes on. Nonetheless, had to wake up when everyone else sleeps. And, we made it. Recording was done. December, the course launched.
 
 # Travel
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735714275692/505e6bb6-39d3-4851-aaaf-7ddcbada31b5.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735714275692/505e6bb6-39d3-4851-aaaf-7ddcbada31b5.jpeg)
 
 Saw hills and the beaches, The most beautiful sunsets, some of the best scenic routes, roads covered with tree shed, tall trees on either sides, long walks and occassional cycling.
 
@@ -73,7 +73,7 @@ Looking forward to reading more fiction novels this year. Though no goals, no ta
 1\. This was second year of staying consistent with yoga practiced. Though was not so consistent towards the year end because of travel or when we had no classes. Several asana’s unlocked. Efforts bore fruit.  
 2\. 🤷 Learned to solve Rubiks cube. Tried to keep practicing it on and off. Trying to improve on my solving speed. Participated in some speed cubing competitions. Only, to find out I stand last in the tally.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735712752182/2fb53cbd-32dd-4a59-85d4-90a3d078b2b9.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735712752182/2fb53cbd-32dd-4a59-85d4-90a3d078b2b9.jpeg)
 
 # New Hobby’s Started
 
@@ -89,7 +89,7 @@ Looking forward to reading more fiction novels this year. Though no goals, no ta
 
 This was the last puzzle for 2024.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735713043029/b2d7acc5-e69e-4fe8-b396-492106eb3bc0.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735713043029/b2d7acc5-e69e-4fe8-b396-492106eb3bc0.jpeg)
 
 With this cute lil cupcake. Wish you a Happy New Year.  
 Thank you for reading.

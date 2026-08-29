@@ -12,13 +12,13 @@ This is the fund that will only be used in case of emergency. Consider this as a
 
 1\. **Keep aside 6 months of living costs**. Include everything in it - Rent, EMI, school fees, utilities, premiums, credit card charges.Plus any other monthly expense. Monthly expenses can be figured out based on how much money you are transferring monthly to your spend-it account. As discussed in 01 part of this series.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1709910747068/66d17afd-44a7-4453-a944-43c2d8b4ed88.png align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1709910747068/66d17afd-44a7-4453-a944-43c2d8b4ed88.png)
 
 2\. 6 months is the average, you can increase or decrease this amount based on your personal situation.
 
 3\. Lower the risk to the household, lower is the number of months spending you need to cover for in the emergency fund. And, higher the risk, higher the amount you save.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1709911622942/156c6783-f4fe-4956-80d9-3293abad4459.png align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1709911622942/156c6783-f4fe-4956-80d9-3293abad4459.png)
 
 ## **Where do you keep this money?**
 
@@ -30,4 +30,4 @@ This is the fund that will only be used in case of emergency. Consider this as a
 
 4\. Before doing any long term investments. Build your emergency fund. Set a monthly target. And, keep crediting your emergency account each month. Once target is achieved stop crediting.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1709913134442/772b4523-9574-459e-88d7-891f2869718f.png align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1709913134442/772b4523-9574-459e-88d7-891f2869718f.png)

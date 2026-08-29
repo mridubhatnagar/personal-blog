@@ -14,7 +14,7 @@ After having solved around 12+ puzzles over a year. I can tell you there is some
 
 Patients recovering from critical illness like Dementia, Alzheimer, stroke. Are often recommended jigsaw puzzles for cognitive rehabilitation.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752558844417/5ba54265-1e5f-46f0-90a8-02c28b48e9cd.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752558844417/5ba54265-1e5f-46f0-90a8-02c28b48e9cd.jpeg)
 
 ## What types of puzzles and piece counts are available ?
 
@@ -34,9 +34,9 @@ There are several ways you can up the challenge.
 
 Below is one of the challenging ones I solved last month.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752560226813/56bdd9da-b76d-4fc8-a610-82fe15c3c62e.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752560226813/56bdd9da-b76d-4fc8-a610-82fe15c3c62e.jpeg)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752560336577/1ab68fd2-10b6-4462-925e-e0b5a5a74fd3.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752560336577/1ab68fd2-10b6-4462-925e-e0b5a5a74fd3.jpeg)
 
 ## Progression in Jigsaw Puzzle?
 
@@ -53,11 +53,11 @@ Started with solving a cardboard puzzle of 150 pieces. Did 4-5 more puzzles of 1
 6\. **PieceUp** - Sells cardboard puzzles, fixed piece count 80 pieces. High quality designs. You can reach out to them via their Instagram handle. Women owned.  
 7\. **Puzzlist.co** - Newly opened brand based out of Chennai. A part of earnings from the puzzles is given to Cancer care foundation (I don’t know the foundation name) and a part to the puzzle artist. Women owned, family run small business.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752564645046/88264fd2-53fb-4bcc-b86e-7412672bf6bf.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752564645046/88264fd2-53fb-4bcc-b86e-7412672bf6bf.jpeg)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752564838297/50b217da-5848-49a5-8246-66daeaff0887.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752564838297/50b217da-5848-49a5-8246-66daeaff0887.jpeg)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752565104877/e32c5788-8bf9-444b-aac5-e909bc8aa298.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752565104877/e32c5788-8bf9-444b-aac5-e909bc8aa298.jpeg)
 
 ## Jigsaw Puzzle brands outside India?
 
@@ -114,4 +114,4 @@ That’s all. This was more of a brain dump about everything I learned over time
 
 **May mindfully putting pieces in place give you peace and happiness. Happy puzzling.** 🧩
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752566446427/7b1c1bad-97e4-4ef6-a0cb-0c02a2fbada1.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752566446427/7b1c1bad-97e4-4ef6-a0cb-0c02a2fbada1.jpeg)

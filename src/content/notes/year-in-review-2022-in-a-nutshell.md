@@ -94,19 +94,19 @@ One of the known perks of being part of a remote organization is you can work fr
 
 Did inflatable kayaking in Rishikesh with **Team4Adventure** for 2 consecutive days. An inflatable kayak is somewhat similar to a raft. However, only for 2 people. Negotiated some rapids, got flipped out of the kayak, and jumped into the river multiple times.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1679242857893/39dbb2bf-3598-4050-acc4-f0c618afe59c.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1679242857893/39dbb2bf-3598-4050-acc4-f0c618afe59c.jpeg)
 
 ### Bungee Jumping
 
 Jumped from India's Highest Bungee Point with a height of 83 metres by **Jumpin Heights** in Rishikesh.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1679243393177/8c3c52b9-deaf-47d0-b1ef-369b7817b2bf.png align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1679243393177/8c3c52b9-deaf-47d0-b1ef-369b7817b2bf.png)
 
 ### Instructional Paragliding
 
 From Rishikesh, I was off to Mumbai. And, hence found it a good opportunity to try instructional paragliding at Kamshet by **Temple Pilots**.
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1679243656997/777b061e-e493-4b2b-a395-0f4b2080fb66.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1679243656997/777b061e-e493-4b2b-a395-0f4b2080fb66.jpeg)
 
 ## End Note
 

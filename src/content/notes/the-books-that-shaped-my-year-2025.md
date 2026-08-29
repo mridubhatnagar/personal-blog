@@ -29,7 +29,7 @@ In between the year for months. I didn’t pick up any book. Attention was divid
 
 What bought me back to reading after a long gap was Fredrick Beckman again. Sunlight, a cup of hot coffee, a loved book in hand and a chocolate cookie can make you happy. The year comes to an end and I again found Beckman books in my hand. Novel A Deal of Lifetime followed by Every Morning The Way Home Gets Longer and Longer. 🙂
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1767159780001/a0c1eb40-dd2b-4f75-938c-8eaa1842301c.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1767159780001/a0c1eb40-dd2b-4f75-938c-8eaa1842301c.jpeg)
 
 And, in case all along you were waiting for only the reading list. Here it is:
 

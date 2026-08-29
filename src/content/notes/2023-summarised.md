@@ -13,9 +13,9 @@ Below is a high level view of everything I was involved into. Throughout the yea
 1\. Scuba Diving. Freaked out, Hence, no pics. HA HA ... 😆  
 2\. Kayaking \[Twice\], May and June. Was terrified here too. 😅
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1704186015211/8c664bc4-4150-467d-85ed-0a10d5c0926c.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1704186015211/8c664bc4-4150-467d-85ed-0a10d5c0926c.jpeg)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1704186491864/e763b6d1-96bb-48c6-8d82-3d4e42da8c9a.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1704186491864/e763b6d1-96bb-48c6-8d82-3d4e42da8c9a.jpeg)
 
 ## Activities I started and managed to stay consistent with:
 
@@ -25,9 +25,9 @@ Below is a high level view of everything I was involved into. Throughout the yea
 4\. Enrolled in a full body strength training program. (Dec)  
 5\. Resumed swimming. By mid December managed to swim 50m freestyle in one go. In a swimming pool having constant depth of 10ft. (Oct-Dec)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1704186863829/9dff83fa-20b8-4d21-87db-4485cfcafbe5.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1704186863829/9dff83fa-20b8-4d21-87db-4485cfcafbe5.jpeg)
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1704187298182/08b8b513-63c0-4c9a-b0ef-e0657f48ebcc.jpeg align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1704187298182/08b8b513-63c0-4c9a-b0ef-e0657f48ebcc.jpeg)
 
 ## Places I travelled to:
 
